@@ -1,2 +1,2 @@
 # Dimple
-Life is comedy
+Luv u dear 😘😘
